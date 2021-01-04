@@ -1,1 +1,0 @@
-# jgnbl.github.io
